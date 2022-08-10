@@ -1,0 +1,2 @@
+# pensamentocomputacional
+wergbnjmk,m
